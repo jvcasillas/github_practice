@@ -2,6 +2,10 @@
 
 Use this repo to practice!
 
+ /\_/\
+( o.o )
+ > ^ <
+
 Hey! Please accept my lovely changes. 
 
 New update!
