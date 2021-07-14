@@ -6,9 +6,9 @@ that's so informative, thanks!!
 
 -local edit here by Freya-
 
- /\_/\
-( o.o )
-\ > ^ <
+    /\_/\
+    ( o.o )
+    > ^ <
 
 Hey! Please accept my lovely changes. 
 
